@@ -1,1 +1,0 @@
-# drawingso6b0w
